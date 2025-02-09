@@ -1,1 +1,2 @@
-# Trading
+I love tech
+and you 🤗
